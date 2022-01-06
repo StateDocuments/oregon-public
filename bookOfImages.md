@@ -1,4 +1,3 @@
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/oregon-public/blob/main/26tunnelE_pid529.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/oregon-public/blob/main/Arlington_pid600.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/oregon-public/blob/main/Basque_pid1597.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/oregon-public/blob/main/Rqwinning_pid597.jpg)
